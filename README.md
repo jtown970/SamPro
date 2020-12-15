@@ -1,1 +1,1 @@
-WelCome to SamPro
+Welcome to SamPro
